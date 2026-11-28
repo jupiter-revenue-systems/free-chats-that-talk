@@ -155,7 +155,7 @@ I stopped carrying messages between my chats. The handoff note carries them.
 ## Three ways forward
 
 - Do it yourself: The HOPS Team is 6 AI agents, already built, for content, blog, site, support, ads and memory, so you skip building each lane by hand. https://ekaistone.com/hops
-- With me: If you want this across your whole business, the Strategy Call + Action Plan is 90 minutes with me plus a detailed step by step plan you can follow. https://ekaistone.com/strategy-session/playbook
+- With me: If you want this across your whole business, the Strategy Session + Playbook is 90 minutes with me plus a detailed step by step plan you can follow. https://ekaistone.com/strategy-session/playbook
 - Done for you: The Seven Star Build is your whole revenue system merged and run by agents, built by my own hands, and it starts with the $150 Discovery Call. https://ekaistone.com/discovery-call
 
 More free training: https://ekaistone.com/training

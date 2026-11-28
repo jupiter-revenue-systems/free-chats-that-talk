@@ -37,8 +37,8 @@ Coaches, agency owners and creators who use more than one AI chat and are tired 
 ## Next
 
 - More free training: https://ekaistone.com/training
-- Want this across your whole business? Strategy Call + Action Plan, $2,500: https://ekaistone.com/strategy-session/playbook
-- Want to talk it through first? Strategy Call, $750: https://ekaistone.com/strategy-session
+- Want this across your whole business? Strategy Session + Playbook, $2,500: https://ekaistone.com/strategy-session/playbook
+- Want to talk it through first? Strategy Session, $750: https://ekaistone.com/strategy-session
 
 Questions: support@ekaistone.com
 
